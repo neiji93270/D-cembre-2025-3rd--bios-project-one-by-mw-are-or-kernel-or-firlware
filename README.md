@@ -7,3 +7,6 @@ Si les tables de taille 100x20 ne sont pas isomorphismes a une densité de valeu
 
 physics - biased bios reasoning coming soon 
 i need a book of half markers tables. the remaining part is the next step of the stepd above. cyclic reactional differences of best marching holomorphic behaviour and bizsed with dirac delta. something ilmposdible. then we dont 'eed plutonium tables even with real sxalars 
+
+
+reasoning initial bios loaders programs (comprehensive integrity and physics). coming zoon.
